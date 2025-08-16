@@ -1,0 +1,1 @@
+# team-ss-ha4ker-image-ditector
